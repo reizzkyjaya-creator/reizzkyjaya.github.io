@@ -1,1 +1,0 @@
-# reizzkyjaya.github.io
